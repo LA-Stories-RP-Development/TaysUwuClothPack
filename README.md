@@ -13,7 +13,7 @@ UwU Cafe Clothing Pack For Alt V, FiveM &amp; Single Player by TayMcKenzieNZ **F
 | <img src="SCREENSHOTS/uwu003.png" width="750">| <img src="SCREENSHOTS/uwu004.png" width="750">  |
 
 
-==== Burger Shot Clothing by TayMcKenzieNZ ===
+==== UwU Cafe Clothing by TayMcKenzieNZ ===
 
 
 INSTALL INSTRUCTIONS
